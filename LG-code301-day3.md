@@ -14,4 +14,4 @@ I'm looking forward to all the challenges I will face during these next 4 weeks.
 
 ### Rough days, but sunshine ahead
 
-Actually it's going to rain the next few days but this is how I manage my stress. Yesterday I had some setback because it took me a long time to find the lecture notes after the portion of the Youtube lecture was bugged out. I couldn't figure out what to search for in the book for the string I needed. A little bummbed but it's okay. I'll finish my project this weekend. Didn't get to work on my portfolio.
+Actually it's going to rain the next few days but this is how I manage my stress. Yesterday I had some setback because it took me a long time to find the lecture notes after the portion of the Youtube lecture was bugged out. I couldn't figure out what to search for in the book for the string I needed. A little bummed but it's okay. I'll finish my project this weekend. Didn't get to work on my portfolio.
